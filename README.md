@@ -3,6 +3,8 @@ Kernel Semi-Prametric Models Use KSPM With (in) R Software
 
 Olah Data Semarang
 
+https://www.youtube.com/watch?v=Gyfag2pDmyE
+
 WA : +6285227746673 (085227746673)
 
 Receive Statistical Analysis Data Processing Services Using
